@@ -1,0 +1,1 @@
+javadaki tum ana fikirleri bikstermek amaci ile bu rojeyi yapmaktayim
